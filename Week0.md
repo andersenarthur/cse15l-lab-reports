@@ -18,3 +18,7 @@ Here are some fun fact about me
 I am currently taking CSE 15L with **Prof Joe Politz** 
 
 I am hoping that I can **Ace** this class
+
+Wish all of my classmate the best
+
+**Goodluck!!!**
