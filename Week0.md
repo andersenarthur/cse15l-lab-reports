@@ -6,7 +6,7 @@
 
 I am originally from *Indonesia*  
 
-my favorite pet is *poodle* ![Image](http://poodle-miniature-toy1.jpeg)
+my favorite pet is *poodle* ![Image](poodle-miniature-toy1.jpeg)
 
 My favorite Youtube Channel is KSI, this is the [Link](https://www.youtube.com/channel/UCVtFOytbRpEvzLjvqGG5gxQ) to his youtube channel
 
